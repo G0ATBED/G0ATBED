@@ -8,7 +8,7 @@
 
 
 <a href="https://distortedreality.atabook.org"> ☘︎ Atabook    
-<a href="addlinklater">  Strawpage ♬⋆
+<a href="[addlinklater](https://goatb3d.straw.page)">  Strawpage ♬⋆
 
 <br><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/64aacf63-3888-480f-8fd5-196408dc3546/d8mkgrf-7604bde1-5784-43ec-8680-24158ae22633.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82NGFhY2Y2My0zODg4LTQ4MGYtOGZkNS0xOTY0MDhkYzM1NDYvZDhta2dyZi03NjA0YmRlMS01Nzg0LTQzZWMtODY4MC0yNDE1OGFlMjI2MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.CPJNW10VyHbZUMadjDDF4vHVqLJGaxPuXR54b0b8NV8" width="100px" >
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0ac9bf74-c0bf-4512-9bcc-9f446728ab5c/d2gdl8n-33338d75-2143-4fe5-8255-ce32ff29a722.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8wYWM5YmY3NC1jMGJmLTQ1MTItOWJjYy05ZjQ0NjcyOGFiNWMvZDJnZGw4bi0zMzMzOGQ3NS0yMTQzLTRmZTUtODI1NS1jZTMyZmYyOWE3MjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-wsSqk8BYuw-nLzhmtwEVEPozBOhAx0WikaONt656Do" width="100px" >
